@@ -1,1 +1,1 @@
-# Funny
+直接下载release
